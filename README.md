@@ -11,7 +11,7 @@ In deze informatiebrief vragen wij je of je wilt meedoen aan (medisch-) wetensch
 Je leest in deze brief waar het onderzoek over gaat. 
 Ook lees je wat het voor je betekent als je aan het onderzoek deelneemt. 
 
-Heef je belangstelling? Lees deze informatiebrief dan aandachtig door.
+Heb je belangstelling? Lees deze informatiebrief dan aandachtig door.
 
 Wil je meedoen?
 Je kan dit online aangeven aan het begin van de vragenlijst.
