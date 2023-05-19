@@ -8,15 +8,15 @@
 
 Beste vader,
 
-In deze informatiebrief vragen wij je of je wilt meedoen aan (medisch-) wetenschappelijk onderzoek. Meedoen is vrijwillig. Je krijgt deze informatiebrief omdat je een paar weken geleden vader geworden bent. 
+In deze informatiebrief vragen wij u of u wilt meedoen aan (medisch-) wetenschappelijk onderzoek. Meedoen is vrijwillig. U krijgt deze informatiebrief omdat u een paar weken geleden vader geworden bent. 
 
-Je leest in deze brief waar het onderzoek over gaat. 
-Ook lees je wat het voor je betekent als je aan het onderzoek deelneemt. 
+U leest in deze brief waar het onderzoek over gaat. 
+Ook leest u wat het voor u betekent als u aan het onderzoek deelneemt. 
 
-Heb je belangstelling? Lees deze informatiebrief dan aandachtig door.
+Heeft u belangstelling? Lees deze informatiebrief dan aandachtig door.
 
-Wil je meedoen?
-Je kan dit online aangeven aan het begin van de vragenlijst.
+Wilt u meedoen?
+U kunt dit online aangeven aan het begin van de vragenlijst.
 
 #### 2.	Algemene informatie
 Het onderzoek is opgezet door de afdeling Verloskunde en Gynaecologie van het Erasmus MC.
@@ -25,50 +25,47 @@ Het onderzoek wordt uitgevoerd door artsen/onderzoekers van deze afdeling.
 #### 3.	Wat is het doel van het onderzoek?
 Het doel van het onderzoek is om de ervaringen van vaders in kaart brengen met betrekking tot de zorg rondom de zwangerschap en bevalling. Hiermee bedoelen wij de zorg die geleverd wordt in verloskundige praktijken en ziekenhuizen gedurende de zwangerschap, tijdens de bevalling en bij controles na de bevalling. Daarnaast willen wij meer weten over de relatie tussen ervaringen rondom de zorg en de band die vaders met hun kind ervaren. Met dit onderzoek willen we de zorg voor vaders verbeteren.
 
-#### 4.	Hoe verloopt het onderzoek en wat betekent dat voor jou?
-Je vult eenmalig een vragenlijst in De vragenlijst is anoniem en invullen kost ongeveer 10-15 minuten.
-Wanneer je deelneemt aan het onderzoek, verzamelen en gebruiken we je gegevens. 
+#### 4.	Hoe verloopt het onderzoek en wat betekent dat voor u?
+U vult eenmalig een vragenlijst in. De vragenlijst is anoniem en invullen kost ongeveer 10-15 minuten.
+Wanneer u deelneemt aan het onderzoek, verzamelen en gebruiken we uw gegevens. 
 
-#### 5.	Wat zijn de voordelen en de nadelen als je meedoet aan het onderzoek?
-Je hebt zelf geen (direct) voordeel van meedoen aan dit onderzoek. Wel kan je je ervaringen delen en draag je bij aan de verbetering van de zorg rondom zwangerschap en geboorte. De nadelen van deelname zijn dat het u tijd kost.
+#### 5.	Wat zijn de voordelen en de nadelen als u meedoet aan het onderzoek?
+U heeft zelf geen (direct) voordeel van meedoen aan dit onderzoek. Wel kan u uw ervaringen delen en draagt u bij aan de verbetering van de zorg rondom zwangerschap en geboorte. De nadelen van deelname zijn dat het u tijd kost.
 
-#### 6.	Als je niet mee wilt doen
+#### 6.	Als u niet mee wilt doen
 Deelname aan het onderzoek is geheel vrijwillig. 
 
 #### 7.	Welke gegevens verzamelen wij? 
-We verzamelen, gebruiken en bewaren de vragenlijst en je e-mailadres. 
+We verzamelen, gebruiken en bewaren de anonieme vragenlijst.
 
-#### 8.	Wat doen we met je gegevens?
-#### Waarom verzamelen, gebruiken en bewaren we je gegevens?
-We verzamelen, gebruiken en bewaren je e-mailadres om de uitnodiging voor de vragenlijst te sturen. We verzamelen, gebruiken en bewaren je gegevens om onderzoek te doen.
+#### 8.	Wat doen we met uw gegevens?
+#### Waarom verzamelen, gebruiken en bewaren we uw gegevens?
+We verzamelen, gebruiken en bewaren uw anonieme gegevens om onderzoek te doen.
 Wij willen de resultaten van het onderzoek publiceren. Dat betekent dat we in (vak)tijdschriften en rapporten beschrijven wat we geleerd hebben. 
 
-Sommige mensen kunnen je (anonieme) antwoorden bekijken. Soms is dat nodig om de kwaliteit van het project na te gaan. Deze mensen zijn: onderzoekers van de afdeling Verloskunde en Gynaecologie van het Erasmus MC, een controleur die voor het Erasmus MC werkt en medewerkers van de Inspectie Gezondheidszorg en Jeugd.
+Sommige mensen kunnen uw anonieme antwoorden bekijken. Soms is dat nodig om de kwaliteit van het project na te gaan. Deze mensen zijn: onderzoekers van de afdeling Verloskunde en Gynaecologie van het Erasmus MC, een controleur die voor het Erasmus MC werkt en medewerkers van de Inspectie Gezondheidszorg en Jeugd.
 
-#### Hoe beschermen wij je privacy?
-Om uw privacy te beschermen worden uw gegevens volledig anoniem verzameld. Je gegevens zijn niet te herleiden naar jou als persoon. Als we je gegevens verwerken of delen, blijven deze anoniem. In rapporten en publicaties over het onderzoek kan niemand terughalen dat het over u ging.
+#### Hoe beschermen we uw privacy?
+Om uw privacy te beschermen worden uw gegevens anoniem verzameld. Uw gegevens zijn niet te herleiden naar u als persoon. Als we uw gegevens verwerken of delen, blijven deze anoniem. In rapporten en publicaties over het onderzoek kan niemand terughalen dat het over u ging.
 
-#### Hoe lang bewaren we je gegeven?
+#### Hoe lang bewaren we uw gegeven?
 We bewaren de anonieme gegevens 15 jaar na afloop van het onderzoek in het Erasmus MC. Dat is de wettelijke bewaartermijn. 
 
-#### Mogen we je gegevens gebruiken voor ander onderzoek? 
-Je gegevens kunnen na afloop van dit onderzoek ook nog van belang zijn voor ander wetenschappelijk onderzoek Je kan aangeven of je dit goed vindt. Geef je geen toestemming? Dan kun je nog steeds meedoen met dit onderzoek.
-
-#### Kun je je toestemming voor het gebruik van je gegevens weer intrekken?
-Je kunt je toestemming voor het gebruik van je gegevens op ieder moment intrekken. 
+#### Mogen we uw gegevens gebruiken voor ander onderzoek? 
+Uw gegevens kunnen na afloop van dit onderzoek ook nog van belang zijn voor ander wetenschappelijk onderzoek. U kunt aangeven of u dit goed vindt. Geeft u geen toestemming? Dan kunt u nog steeds meedoen met dit onderzoek.
 
 #### Toestemming voor het delen van gegevens met externe partijen 
-We willen de gegevens van het onderzoek ook in de toekomst graag zo goed mogelijk gebruiken. Daarom vragen we je toestemming om in de toekomst de gegevens anoniem te kunnen delen met andere onderzoeksinstituten. 
-Wij vragen je op het toestemmingsformulier apart toestemming voor het doorsturen van je anonieme gegevens. Wanneer je die toestemming niet geeft, kun je toch meedoen met dit onderzoek. 
+We willen de gegevens van het onderzoek ook in de toekomst graag zo goed mogelijk gebruiken. Daarom vragen we uw toestemming om in de toekomst de gegevens anoniem te kunnen delen met andere onderzoeksinstituten. 
+Wij vragen u op het toestemmingsformulier apart toestemming voor het doorsturen van uw anonieme gegevens. Wanneer u die toestemming niet geeft, kunt u toch meedoen met dit onderzoek. 
 
-#### Wil je meer weten over je privacy?
+#### Wilt u meer weten over uw privacy?
 Kijk dan op https://www.autoriteitpersoonsgegevens.nl/nl/over-privacy/persoonsgegevens. 
 
-#### 9.	Krijg je een vergoeding voor meedoen?
-Als je deelneemt aan de vragenlijst ontvang je hier geen vergoeding voor.
+#### 9.	Krijgt u een vergoeding voor meedoen?
+Als u deelneemt aan de vragenlijst ontvangt u hier geen vergoeding voor.
 
-#### 10.	Heb je vragen?
-Bij vragen over dit onderzoek kun je contact opnemen met de onderzoeker. De contactgegevens vind je onderaan de pagina
+#### 10.	Heeft u vragen?
+Bij vragen over dit onderzoek kunt u contact opnemen met de onderzoeker. De contactgegevens vindt u onderaan de pagina.
 
 
 Met vriendelijke groet,
@@ -101,5 +98,5 @@ De Functionaris voor de Gegevensbescherming van het Erasmus MC is bereikbaar via
 E-mail: functionaris.gegevensbescherming@erasmusmc.nl  
 Telefoon: 010-703 4986 
 
-#### Voor meer informatie over je rechten: 
-Voor meer informatie of bij vragen over je rechten kun je contact opnemen met de functionaris voor de Gegevensbescherming of met de Autoriteit Persoonsgegevens.
+#### Voor meer informatie over uw rechten: 
+Voor meer informatie of bij vragen over uw rechten kunt u contact opnemen met de functionaris voor de Gegevensbescherming of met de Autoriteit Persoonsgegevens.
