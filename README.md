@@ -23,7 +23,7 @@ Het onderzoek is opgezet door de afdeling Verloskunde en Gynaecologie van het Er
 Het onderzoek wordt uitgevoerd door artsen/onderzoekers van deze afdeling.
 
 #### 3.	Wat is het doel van het onderzoek?
-Het doel van het onderzoek is om de ervaringen van vaders in kaart brengen met betrekking tot de zorg rondom de zwangerschap en bevalling. Hiermee bedoelen wij de zorg die geleverd wordt in verloskundige praktijken en ziekenhuizen gedurende de zwangerschap, tijdens de bevalling en bij controles na de bevalling. Daarnaast willen wij meer weten over de relatie tussen ervaringen rondom de zorg en de band die vaders met hun kind ervaren. Met dit onderzoek willen we de zorg voor vaders verbeteren.
+Het doel van het onderzoek is om de ervaringen van vaders in kaart brengen met betrekking tot de zorg rondom de zwangerschap en bevalling. Hiermee bedoelen wij de zorg die gegeven wordt in verloskundige praktijken en ziekenhuizen gedurende de zwangerschap, tijdens de bevalling en bij controles na de bevalling. Daarnaast willen wij meer weten over de relatie tussen ervaringen rondom de zorg en de band die vaders met hun kind ervaren. Met dit onderzoek willen we de zorg voor vaders verbeteren.
 
 #### 4.	Hoe verloopt het onderzoek en wat betekent dat voor u?
 U vult eenmalig een vragenlijst in. De vragenlijst is anoniem en invullen kost ongeveer 10-15 minuten.
